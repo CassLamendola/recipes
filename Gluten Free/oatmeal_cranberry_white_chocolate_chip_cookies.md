@@ -33,5 +33,7 @@ Bake the Cookies: Bake in the preheated oven for about 15 minutes or until they 
 
 - Give to neighbors.
 
+- Dance it out.
+
 #Notes:
 Yield: about 4 dozen 2-inch cookies
