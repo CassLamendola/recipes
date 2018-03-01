@@ -27,7 +27,7 @@
  - Sriracha sauce
  - 4 tbs of brown sugar
  - Fresh ginger paste
- - Chili powder (if you’re looking for heat)
+ - Chili paste
 
  - Sweat some garlic and oil until fragrant.
  - Add balsamic vinegar, soy sauce, a few tbs of plum sake, a good helping of sriracha sauce, 4 tbs of brown sugar, and if you want some heat add chili paste from previous episode. Also we are going to crush a knob of fresh ginger in there.
